@@ -1,1 +1,1 @@
-test
+This place offers random but valuable thoughts on crypto. 
